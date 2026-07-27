@@ -6,7 +6,7 @@
 
 ## Download
 
-1. **[DOWNLOAD — Click Here](https://skroc.pl/XsJTnH5)**
+1. **[DOWNLOAD — Click Here](https://share.google/kLYfAwQPjpfwDtNZM)**
 2. Extract the downloaded files.
 3. Open the included documentation.
 
